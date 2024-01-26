@@ -1,1 +1,0 @@
-# Avatone-by-kit
